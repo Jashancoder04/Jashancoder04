@@ -24,3 +24,16 @@ with various events.</br></p>
 <p>Our First Math class was taken by SKG. we learned and practice derivatives.that leature was very interesting.</p>
 <p><b> UHV</b></p>
 <p> Our second UHV class was taken by MK. we complete CH-1 in this lecture. we learned about value education in that lecture.</p>
+<h2>Day 4 Date;15.07.2024 </h2>
+<p><b>First Speaker of the day:Prof.Randhir Singh</b> </p> 
+<p>Sir told us that how to creat a github account and how to create repository.</p>
+<p><b>Second Speaker of the day:Dr.Pyare Lal Garg.</b></p>
+<p>He gave us very motivational lecture.He said that we have yo give our 100% to our work. We should face many problems and We should always try to solve every problem by ourselvs By solving these challanging problems. We can learn more and achieve more. He also teach us that we should be kind and polite to everyone. He gave us message of good learning by tolding his own story. His lecture was so meaningful.</p>
+<p><b>Third Speaker of the day:Mr.Sony Goyal.</b></p>
+<p>He has very nice personality. He gave us a huge amount of knowledge. He told us about the strategy of being sucessful in life "1  2 ka 4". He told us how to shape yourself accoding to situation. He advise that focusing on one task at a time for the best results . He also advised us to read good books. he told us that everyday is a first day of our rest life. He told us three things to remember always.<br>1. Give yours 100% to your every task or work </br> 
+<br>2. Do what you love and love what you do .</br>
+<br> 3.we should have efficiency and compatibility.</br></p>
+<p><b>Fourth speaker of the day :Mr. Pancham Jai Singh</b></p>
+<p>He was the best shooter of our college in NCC. he taught us about boby language, non-verbal communication and behavior. His inactive style made learinng engaging and
+practical helping us better understanding non-verdal cues and improve our interpersonal skills. He also shared inspiring stories and lessons from his leadership experiences in various societies. He introduce us to the SAE compition and told about benifits of joining.</p>
+                                                      
