@@ -36,4 +36,26 @@ with various events.</br></p>
 <p><b>Fourth speaker of the day :Mr. Pancham Jai Singh</b></p>
 <p>He was the best shooter of our college in NCC. he taught us about boby language, non-verbal communication and behavior. His inactive style made learinng engaging and
 practical helping us better understanding non-verdal cues and improve our interpersonal skills. He also shared inspiring stories and lessons from his leadership experiences in various societies. He introduce us to the SAE compition and told about benifits of joining.</p>
-                                                      
+<h2>Day_5 Date_16.07.2024</h2>
+<p>The day start with english activity. We participate in the english activity and compitition. We learn new words from this activities. It  boosted my confidence. We also came to know about English club in our college. This activity was very intersting and useful for us .</p>
+<h2>Day_6 date-17.07,2024 </h2>
+<p>On the day sixth, we attend class.</p>
+<p><b>Math</b></p>
+<P>Our math class was taken by RB. We learned and practice integration that leacture was very interesting.</P>
+<P><b>UHV</b></P>
+<p>Our second UHV calss was taken by JK . WWE omplete ch-2 in this lecture. We learned about self and body. Need of self and body in that lecture.</p>
+<h2>Day-7 Date -18.07,2024</h2>
+<P>On the day Sixth, we attend class first.</P>
+<P>Peer intraction </P>
+<p>Our peer interaction class was taken by our seniour. They guide us. they taught us how to calculate SGPA, how to make library card Bus pass etc. We fell very gppd after intraction with our seniour.</p>
+<p>Math </p>
+<p> Our Math class was taken by SKG. We practive integration by parts and partial fracton. We practiced variety of problems in each topic.</p>
+<h2>In uditorium</h2>
+<p><b>First speaker of the day:Dr. Harminder Singh</b></p>
+<p>DR. Harminder Singh , the ANO of NCC . he introduce us to brnefits  of joining NCC. He mentioned both phsical amd mental advantages, explaning that NCC provide army training while also helping us to shape our personality and bulit confidence and communication skills , team work and discpline. benefits of joining NCC</p>
+<p><b>SAHARA Scholarship for Ncc cadets.</b></p>
+<p>/<b>Expenses of uniform, refreshment and campus beared by government.</b></p>
+<p><b>Chance to get select in army.</b></p>
+<p><b>NCC also provides us life skills.</b></p>
+<h2><b>Second speaker of the day: Dr.Jasvir Singh Gerwal</b></h2>
+<p> He discussed about NSS(National service Schme) He introduced us the with works done by NSS. NSS volenteers work on education, environment conversation, health,  awarness and social justices. NSS does not meant only to help others but it also develop skills and qualities in life. Joining NSS help us to build self-confidence, patience, positive attitude. There are so many social works done by NSS. these are :_ 1.Affofestations, 2. Blood donation camps , 3. Cleaninees of environment and many mare . </p>
