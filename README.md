@@ -156,8 +156,8 @@ Meditation help us to become free fro
 m any disease, depression and anxiety.
 we did meditation for 15 mintue
 feel very good after doing meditation.
-Singing and Dancing competition
- students of first year take part in Si
+<p>Singing and Dancing competition</p>
+<p> students of first year take part in Si
 nging and Dancing competition. All the
 performers did very well. we enjoy a
 lot on the last day of our INDUCTION P
