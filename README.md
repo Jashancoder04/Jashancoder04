@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/8d783846-81f5-4984-8472-5208048efcdc)<h1>Jashancoder04.github.io</h1>
+
 <h1>Induction program 2024</h1
 <p></p>
 <h2>Day-1 Date-10.07,2024</h2>
