@@ -43,14 +43,14 @@ practical helping us better understanding non-verdal cues and improve our interp
 <p><b>Math</b></p>
 <P>Our math class was taken by RB. We learned and practice integration that leacture was very interesting.</P>
 <P><b>UHV</b></P>
-<p>Our second UHV calss was taken by JK . WWE omplete ch-2 in this lecture. We learned about self and body. Need of self and body in that lecture.</p>
+<p>Our second UHV calss was taken by JK . We complete ch-2 in this lecture. We learned about self and body. Need of self and body in that lecture.</p>
 <h2>Day-7 Date -18.07,2024</h2>
 <P>On the day Sixth, we attend class first.</P>
 <P>Peer intraction </P>
 <p>Our peer interaction class was taken by our seniour. They guide us. they taught us how to calculate SGPA, how to make library card Bus pass etc. We fell very gppd after intraction with our seniour.</p>
 <p>Math </p>
 <p> Our Math class was taken by SKG. We practive integration by parts and partial fracton. We practiced variety of problems in each topic.</p>
-<h2>In uditorium</h2>
+<h2>In Auditorium</h2>
 <p><b>First speaker of the day:Dr. Harminder Singh</b></p>
 <p>DR. Harminder Singh , the ANO of NCC . he introduce us to brnefits  of joining NCC. He mentioned both phsical amd mental advantages, explaning that NCC provide army training while also helping us to shape our personality and bulit confidence and communication skills , team work and discpline. benefits of joining NCC</p>
 <p><b>SAHARA Scholarship for Ncc cadets.</b></p>
@@ -78,7 +78,7 @@ BASICS OF CHEMISTRY</p>
 <p>our chemistry class was take by sir K.
 B. we learn basics of organic chemistr
 y, inorganic chemistry, physical chemi
-stry. We studied with great interest i
+stry. We studied with great interest 
 In that class.</p>
 
  <p>PEER INTRACTION- TECHNICAL</p>
@@ -104,10 +104,7 @@ up in life. We should always move for
 ward in life with good thoughts.</p>                                                                                                                                       
  <p><b>Second speaker of the
 day: Er. Lakhvir singh.</b></p>
-
-
 <p>Sir introduce us with CML (center for M
-
 ulti-Faceted Learning), SAWYAM (Study W
 ebs of Active Learning for Young Aspir
 ing Minds) NPTEL (National Programme on
@@ -131,11 +128,9 @@ we attend classes.</p
 <p><b>UHV</b></p>
 
 <p>Our UHV class was taken by MK. We comp
-
 lete ch-3 in this lecture. We also rev
 ised ch-1,2 in that lecture.</p>
 <p>CANVA</p>
-
 <p>Our senior taught us about graph
 igning. They taught us about all tools
 of canva. that was really very inters
